@@ -1,0 +1,2 @@
+# metadata
+CONNECT TO MEMEGEYSER BOT NOW TO CLAIM !!!!!!!  AIRDROP | GIVEAWAY | MIGRATE | REFERRAL |https://discord.gg/g3Jh49N5
